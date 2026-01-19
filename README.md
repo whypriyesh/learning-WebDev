@@ -14,8 +14,8 @@ I am a **Computer Science student** passionate about learning and building innov
 - 💼 Secure a software development role in the near future.  
 
 💬 **Let's Connect**  
-- [LinkedIn](https://www.linkedin.com/in/priyesh-singh-a6a402331/)  
-- [GitHub](https://github.com/Priyesh-11)  
+- [LinkedIn](https://www.linkedin.com/in/priyeshai/)  
+- [GitHub](https://github.com/whypriyesh)  
 - Email: [priyeshwas11@gmail.com](mail to:priyeshwas11@gmail.com)  
 
 ---
